@@ -1,0 +1,1 @@
+![Porsche 911 GT3 RS image](https://newsroom.porsche.com/.imaging/mte/porsche-templating-theme/image_1290x726/dam/pnr/porsche_newsroom/Produkte/911/Porsche-911-GT3-RS/P15_0152_a4_rgb/jcr:content/P15_0152_a4_rgb.jpg)
